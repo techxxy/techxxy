@@ -8,7 +8,7 @@
 
 ### Let's Connect!
 
-🌐 **GitHub:** Explore my projects at [@techxxxy](https://github.com/techxxxy) and experience the joy of coding!
+🌐 **GitHub:** Explore my projects at [@techxxy](https://github.com/techxxy) and experience the joy of coding!
 
 📫 **Reach Out:** Share your thoughts and ideas. Let's create tech that's as delightful as Waackxxxy's dance!
 
